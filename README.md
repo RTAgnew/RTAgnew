@@ -13,7 +13,7 @@
 
 - 💬 Ask me about **Ed Tech questions**
 
-- 📫 How to reach me **tyler@codepedagogy.com**
+- 📫 How to reach me **tyler@mwhwebsites.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
